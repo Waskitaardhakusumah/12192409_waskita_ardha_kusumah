@@ -1,1 +1,0 @@
-# 12192409_waskita_ardha_kusumah
